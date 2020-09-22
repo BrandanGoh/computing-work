@@ -202,3 +202,47 @@ He had felt what had happened.
 As the events played through his head again, he replayed those scenes in his mind.
 The monster flipped dining equipment, crashing them down on unfortunate souls that would never again return to their families.
 He used his pistol to fill Harry with ammunition.
+He took out his bayonet rifle, then speared through Anton and Sully, the slugs tearing through their chests.
+As some brave students and teachers ran forward to stop the madness, the monster silenced them immediately.
+He could hear screaming, shouts and blood everywhere.
+And then finally, when he paused for a while, he felt adult hands grabbing him, and dragging him to the staff room.
+"Do you know how many innocent students you just massacred?"
+"Their parents are hysterical right now. They're sending letters to the police, and lawyers are going to sue the school. Some of them are even calling for a death sentence."
+"School rules dictate immediate exclusion, caning, police assistance and jail."
+Conor looked up.
+Things were finally going to be all right again.
+Things were finally going to be normal.
+He was going to get punished.
+Finally.
+Thank god.
+After a long time, he felt light, as if he was floating in the air.
+But another sentence from the Headmistress sent him crashing down again.
+"How could I do that?"
+Conor stared in disbelief.
+"How could I do that and still call myself a teacher? With all that you're going through, with all that we know about Harry."
+The Headmistress shook her head.
+"There will be a time that we talk about this again, O'Malley. But today is not that time. You have bigger things to deal with."
+And Conor realised that it was finished.
+That was all he was going to get.
+"You're not punishing me?" Conor asked in disbelief.
+"Guns are permitted in this country, and anyway, what purpose could punishment serve?"
+
+CHAPTER "FOURTH TALE/OFF WITH THE HEAD"
+
+And here was the nightmare.
+Here was the monster.
+Not the yew tree monster.
+It was _the_ monster.
+The monster that Conor had expected to come on his first night.
+Made from ash and fire, with teeth that threatened to tear him alive.
+And it was holding Conor's mum.
+"And here is the truth of Conor O'Malley. But first, I want _the_ head." The yew tree monster said as he stepped out from behind the forest.
+Gripping his revolver, Conor shot.
+There was a bang.
+And just like the nightmare that Conor experienced every night, the bullet pierced through his mother.
+But this time, Conor was prepared.
+He wasn't giving up so easily.
+And so holding back screams, he fired again and again.
+Finally, the head fell off, as the monster tumbled back into the pit with Conor's mum.
+Then, the nightmare ended.
+"Good job."
